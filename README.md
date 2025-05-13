@@ -1,5 +1,5 @@
 # 💫 About Me:
-💸 Owner of Nico Music.<br>🕺 A Cool 15 Year Old Guy (I guess)<br>ɪɴ From The Land of Diversity ! (India)<br>💻 Last Shower : 31 Febuary 2024<br>
+💸 Owner of Nico Music.<br>🕺 A Cool 16 Year Old Guy (I guess)<br>ɪɴ From The Land of Diversity ! (India)<br>💻 Last Shower : 31 Febuary 2024<br>
 
 
 ## 🌐 Socials:
